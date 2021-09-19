@@ -1,3 +1,4 @@
-# 永远喜欢可可味！
+# 永远喜欢可可味！いつもkokomiが大好き
 
-* 官网：<https://kokomi-official.com>
+* 官网Website：<https://kokomi-official.com>
+
